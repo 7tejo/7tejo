@@ -3,8 +3,17 @@
 </div>
 <div align="center">
 <sub> ࣪ ִֶָ☾. Heh free feel to INT/C+H, I'm really friendly and I dont bite/pos 𝜗𝜚⋆ </sub>
-</div>
-
+<br />
+<sub> ☆౨ৎ Check strawpage, W2I cause I'm often offtabed. ⋆˚𝜗𝜚</sub>
+<br />
+<sub> ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦</sub>
+</div> 
+<br />
+<br />
+<br />
+<br />
+<br />
+<br />
 <div align="center">
 <sup> ୨ৎ Me & my glorious homeboy ily/p ୨ৎ</sup>
 </div>
