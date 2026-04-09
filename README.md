@@ -1,6 +1,6 @@
 <br />
 <div align="center">
-  <img src="https://i.imgur.com/idtMBVP.png">
+  <img src="https://imgur.com/0PocFRJ">
 </div>
 <div align="center">
 <sub> ࣪ ִֶָ☾. Heh,, feel free to INT/C+H, I'm really friendly and I don't bite/pos 𝜗𝜚⋆ </sub>
