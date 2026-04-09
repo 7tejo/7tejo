@@ -1,3 +1,4 @@
+<div align="center">
 
 <sub> ࣪ ִֶָ☾. Heh,, feel free to INT/C+H, I'm really friendly and I don't bite/pos 𝜗𝜚⋆ </sub>
 <br />
